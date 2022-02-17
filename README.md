@@ -2,9 +2,13 @@
 
 Sponsored by Youtube, Youtube Black and Bradesco. Based on Programming development and entertainment industry.
 
+
 Update:
 
+
 More +5 Millions views in 2:08 hours alive
+
+
 And  2.46 Million Subscribers on Youtube Brasil Channel
 
 

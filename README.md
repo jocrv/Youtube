@@ -1,6 +1,6 @@
 # Youtube and Youtube Black Brasil
 
-Sponsored by Youtube, Youtube Black and Bradesco. Based on Programming development and entertainment industry.
+Sponsored by Youtube, Youtube Black. Based on Programming development and entertainment industry.
 
 
 Update:
